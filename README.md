@@ -1,1 +1,1 @@
-# Alivio-HTML-project
+# Elegant store
